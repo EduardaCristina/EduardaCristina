@@ -7,4 +7,4 @@ Meu nome é Eduarda Cristina Mota
 - utilizo esse espaço para minha organização e compatilhamento dos meus projetos 
 
 
-![](https://i.pinimg.com/564x/6d/06/a1/6d06a1d4039865e8c9a357b60bf2cacf.jpg)
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRoyDWhYTlkdOoogBpy8f7R9hQzAI8K920Jkg&s)
