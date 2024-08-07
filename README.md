@@ -3,7 +3,7 @@
 Meu nome é Eduarda Cristina Mota
 
 - Estou estudando na Alura (nao recomendo)
-- Nao sei mecher nesse negocio 
+- Nao sei usar nesse negocio 
 - amo o arrascaeta 
 
 
