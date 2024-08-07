@@ -2,9 +2,9 @@
 
 Meu nome é Eduarda Cristina Mota
 
-- Estou estudando na Alura
-- Estou me desenvolvendo na linguagem JavaScript
-- utilizo esse espaço para minha organização e compatilhamento dos meus projetos 
+- Estou estudando na Alura (nao reomendo)
+- Nao sei mecher nesse negocio 
+- amo o arrascaeta 
 
 
 ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRoyDWhYTlkdOoogBpy8f7R9hQzAI8K920Jkg&s)
